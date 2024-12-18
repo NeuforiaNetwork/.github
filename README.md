@@ -1,2 +1,3 @@
-# .github
-INFO OF ATLANTIC MC
+# ATLANTIC MC
+## DESCRIPCIÓN
+Somos un servidor de Minecraft
