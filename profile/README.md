@@ -1,4 +1,4 @@
-# ATLANTIC MC
+# NEUFORIA NETWORK
 ## ¿Por qué jugar a nuestro servidor?
 
 💻 Somos un servidor de Minecraft que redefine las posibilidades del juego.
@@ -13,7 +13,7 @@
 
 💸 Un sistema de economía dinámico que te permite comprar y vender objetos, materiales y servicios con otros jugadores.
 
-🎁 Al unirte a Atlantic MC, recibirás recompensas exclusivas.
+🎁 Al unirte a Neouforia, recibirás recompensas exclusivas.
 
 🔓 Acceso a áreas exclusivas y eventos especiales.
 
@@ -31,19 +31,19 @@
 
 🤔 ¿Quieres experimentar lo mejor de Minecraft?
 
-👉 ¡Únete a Atlantic MC hoy mismo y descubre por qué somos el servidor más emocionante del momento!
+👉 ¡Únete a Neouforia hoy mismo y descubre por qué somos el servidor más emocionante del momento!
 
 🚀 ¡No te pierdas la oportunidad de unirte a nuestra comunidad y experimentar el juego de una manera nueva y emocionante!
 
 ## REDES SOCIALES
 
-📱 Instagram: mc.atlantic.network
+📱 Instagram: mc.Neouforia.network
 
-🎥 TikTok: mc.atlantic.network
+🎥 TikTok: mc.Neouforia.network
 
-🐦 Twitter: mc.atlantic.network
+🐦 Twitter: mc.Neouforia.network
 
-👥 Facebook: mc.atlantic.network
+👥 Facebook: mc.Neouforia.network
 
 👥 Discord: https://discord.gg/7Ze6ndS2JJ
 
